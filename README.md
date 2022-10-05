@@ -1,1 +1,1 @@
-https://xan-bivalski.github.io
+https://xan-bivalski.github.io/site
